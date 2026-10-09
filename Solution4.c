@@ -1,0 +1,1 @@
+Gacher pata sobuj
